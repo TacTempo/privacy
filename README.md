@@ -1,0 +1,2 @@
+# privacy
+TacTempo Privacy Policy
